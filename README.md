@@ -1,0 +1,1 @@
+# Otomatik-f-nik-lere
